@@ -1,1 +1,1 @@
-# Exerc-cios-Guanabara
+# Exercícios-Guanabara
